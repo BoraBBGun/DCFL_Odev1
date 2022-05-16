@@ -1,0 +1,1 @@
+#meslek kısımı olacaktı ancak yapamadım
